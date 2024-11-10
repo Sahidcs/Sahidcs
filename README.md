@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Sahidkth7917@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lm8nBCAT1N3OTHxdV1GTSP642L3T5bOs/view?usp=sharing](https://drive.google.com/file/d/1lm8nBCAT1N3OTHxdV1GTSP642L3T5bOs/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1lm8nBCAT1N3OTHxdV1GTSP642L3T5bOs/view?usp=sharing](https://drive.google.com/file/d/15ef-wAdeQivQI_eEB6FrAZJjXAIgVq6v/view?usp=sharing)
 
 - ⚡ Fun fact **I'm a coding enthusiast, but I also make amazing latte art on the side.**
 
