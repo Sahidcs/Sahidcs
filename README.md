@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **Sahidkth7917@gmail.com**
 
-- 📄 Know about my experiences (https://drive.google.com/file/d/1PoaA1HFQ5ahhpMuGo35VFg04rhzOoiUU/view?usp=sharing)
-
 - ⚡ Fun fact **I'm a coding enthusiast, but I also make amazing latte art on the side.**
 
 <h3 align="left">Connect with me:</h3>
